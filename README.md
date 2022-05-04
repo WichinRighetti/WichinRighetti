@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WichinRighetti
+- 👀 I’m interested in the outdoors, tech, star wars, video game, anime, riding bikes and craft beer. 
+- 🌱 I’m currently learning software development, CSS, Javascript, HTML. 
+- 💞️ I’m looking to collaborate on project with other begginers or students willing to work as a team and learn together. 
+- 📫 How to reach me @luisrighetti at INSTAGRAM
